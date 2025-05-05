@@ -1,4 +1,4 @@
-# Hello World 👋 I'm Uman
+# Hello World 👋 we are Hello World Collective. 
 
 ### I love 🍌 and 🥭 and 🌴 and most the time you can find me near a beach 🌊
 
