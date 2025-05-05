@@ -1,9 +1,9 @@
-# Hello World 👋 we are Hello World Collective. 
+# Hello World 👋. 
 
-### I love 🍌 and 🥭 and 🌴 and most the time you can find me near a beach 🌊
+### Bringing next level tools 🤖 and fun projects 🌄 to web 3.
 
 
-# Some of my skillz
+# Some skillz
 
 Desgin
 
