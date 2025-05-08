@@ -1,6 +1,6 @@
 # Hello World 👋. 
 
-### Bringing next level tools 🤖 and fun projects 🌄 to web 3.
+### Creating innovative apps and fun projects on web 3.
 
 
 # Some skillz
